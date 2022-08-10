@@ -3,4 +3,4 @@
 
 Download the F-360iSOD here: https://1drv.ms/u/s!Ais1kZo7RR7LeVjDD6sUudnN0l0?e=pqe6Sj
 
-For any questions please send an E-mail to: yi.zhang1@insa-rennes.fr
+For any questions please send an E-mail to: yi23zhang.2022@gmail.com
